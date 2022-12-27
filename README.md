@@ -1,1 +1,1 @@
-# Versao publica do site da Equipe PUCPR - Em constante desenvolvimento
+# Versao publica do site da Equipe PUCPR - Em constante desenvolvimento!
